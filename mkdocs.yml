@@ -1,3 +1,4 @@
 site_name: 美国拉斯维加斯结婚证的办理程序，附内华达州结婚证书样本
 theme:
   name: material
+  custom_dir: overrides
