@@ -2,7 +2,8 @@
 
 在国内，无论是办理**户口落户、房产买卖、配偶签证**还是**法律诉讼**，如果您是在美国拉斯维加斯注册结婚的，都需要了解其合法的办理程序以及回国使用的正确流程。拉斯维加斯（Las Vegas）位于美国内华达州克拉克县（Clark County），因其简便的结婚手续被称为“世界结婚之都”。
 
-<img width="631" height="800" alt="美国拉斯维加斯结婚证样本（内华达州结婚证样式图片）" src="https://github.com/user-attachments/assets/02e41b85-9f12-45b1-af07-3c6ccfa91c6b" />
+<img width="631" height="800" alt="美国拉斯维加斯结婚证样本（内华达州结婚证样式图片）" src="https://github.com/user-attachments/assets/7e9300bd-5c7c-4651-a3f1-0f041ed7ac7f" />
+
 
 ---
 
